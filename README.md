@@ -1,2 +1,0 @@
-# bhushanbsm.github.io
-CV
